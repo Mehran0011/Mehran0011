@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mehran0011
-- 👀 I’m interested in Programming
+- 👀 Seeking for new things in programming and technology!
 - 📫 How to reach me???
 -  Text me on Telegram @Thisismehran
 
